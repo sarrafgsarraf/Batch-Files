@@ -1,0 +1,1 @@
+What does it do : this is an extremely harmful virus the will keep replicating itself until your hard drive is totally full and will destroy your comp.
